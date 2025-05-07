@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Splyx
+- 👋 Hi, I’m Anton
 - 👀 I’m interested in Sport and programming
 - 🌱 I’m currently learnibg
 - 💞️ I’m looking for New Things 
